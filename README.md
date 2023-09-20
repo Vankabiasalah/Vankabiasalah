@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vankabiasalah
-- 👀 I’m interested in programming
-- 🌱 I’m currently learning Android studio
-- 💞️ I’m looking to collaborate on github
+- 👀 I’m interested to maki! 
+- 🌱 I’m currently learning for making you laugh
+- 💞️ I’m looking to collaborate on YouTube kid
 - 📫 How to reach me akbarvanka@gmail.com
 
 <!---
